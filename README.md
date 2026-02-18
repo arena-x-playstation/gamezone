@@ -1,2 +1,2 @@
-# arena-x-playstation-.com
+# arena-x-playstation.com
 For informative and informative purpose
